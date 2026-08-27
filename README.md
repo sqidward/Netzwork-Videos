@@ -1,2 +1,2 @@
-# Netzwork-Videos
+# Netzwork-Videos/photos
 Videos for Netzwork
